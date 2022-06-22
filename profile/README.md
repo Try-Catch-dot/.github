@@ -4,7 +4,7 @@ Bienvenida(o)s
 
 Gracias por ser parte de este proyecto que busca consolidarse como la primer plataforma de educación inversa de Latinoamérica totalmente gratuita para formar nuevos talentos tecnológicos.
 
-[Síguenos](https://linktr.ee/TryCatch_dot)
+[Síguenos](https://linktr.ee/TryCatch.tv)
 <!--
 
 **Here are some ideas to get you started:**
