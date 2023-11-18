@@ -8,5 +8,4 @@ Todos los roles son bienvenidos.
 
 Todavía se pueden unir
 
-Pre-inscripción fase 1 (primer enlace): [TryCatch.tv](https://linktr.ee/TryCatch.tv)
 
